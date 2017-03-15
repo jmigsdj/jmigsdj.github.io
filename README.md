@@ -1,2 +1,1 @@
-# jmigsdj.github.io
-RÉSUMÉ
+# Jose Miguel De Jesus CV RÉSUMÉ
